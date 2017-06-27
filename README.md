@@ -1,3 +1,0 @@
-"# myCatsRule" 
-"# myCatsRule" 
-"# myCatsRule" 
